@@ -1,1 +1,0 @@
-# green_shite_plant_identifier
